@@ -1,4 +1,4 @@
-# Bilal here
+# Bilal Mohammed 
 🎓 Master’s student in Cybersecurity
 🧠 Former AI & Data Science undergrad 
 💻 Passionate about cybersecurity, secure app development, and ethical hacking  
